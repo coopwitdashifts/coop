@@ -1,1 +1,5 @@
 # coop
+
+Hello, Mr. Aiello. My name is Cooper Lesner and I am 15 years old in the 10th grade. I love to play basketball, lift weights, and eat a lot. Recently, I've been trying to get stronger on the court and I am starting to see results through the weight room. I also enjoy hanging out with my friends and family, especially my dog named Onyx. My friends and I love to go hoop, go to the mall, and play video games like Fortnite and Roblox. Something I also enjoy doing is watching movies and shows. My favorite movie is Spiderman Across the Spiderverse, while my favorite show is Naruto because both have great action scenes and are very inspiring.
+
+Additionally, I have learned the new skill of cooking, which I picked up recently. For the entire summer, I cooked breakfast every morning, made my lunch, and assisted my mom when making dinner.
