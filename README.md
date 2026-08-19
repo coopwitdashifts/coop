@@ -6,4 +6,13 @@ Additionally, I have learned the new skill of cooking, which I picked up recentl
 
 My ultimate goal is to go to a D1 college after high school. I want to play basketball at the high level and eventually become a professional player. After college, I would love to play overseas because I have never been out the country and I would love to live in a beautiful foreign place.
 
+![here is my sport]()
+![here is my favorite food]()
+![here is my favorite game]()
 ![here is my dog](dog)
+![here is my favorite shoe]()
+![here is my favorite movie]()
+![here is my favorite show]()
+![here is my favorite place]()
+
+
