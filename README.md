@@ -15,4 +15,5 @@ My ultimate goal is to go to a D1 college after high school. I want to play bask
 ![here is my favorite show]()
 ![here is my favorite place]()
 
+![here is my Spotify playlist](myspotifyplaylist)
 
