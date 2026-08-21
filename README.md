@@ -4,7 +4,7 @@ Hello, Mr. Aiello. My name is Cooper Lesner and I am 15 years old in the 10th gr
 
 Additionally, I have learned the new skill of cooking, which I picked up recently. For the entire summer, I cooked breakfast every morning, made my lunch, and assisted my mom when making dinner. This summer, I also went to the beach with my friends and family. Another thing I did was hoop with my friends, which was very fun because we play well together. We also got to play a lot of Fortnite and got a lot of wins.
 
-My ultimate goal is to go to a D1 college after high school. I want to play basketball at the high level and eventually become a professional player. After college, I would love to play overseas because I have never been out the country and I would love to live in a beautiful foreign place.
+My ultimate goal is to go to a D1 college after high school. I want to play basketball at the high level and eventually become a professional player. After college, I would love to play overseas because I have never been out the country and I would love to live in a beautiful foreign place. It would also be a dream if I could do this with my 2 closest friends. We are always together in the gym putting in work and it would be amazing to play at the professional level with them.
 
 ![here are some images of my favorite things](images)
 
